@@ -17,6 +17,14 @@
 
 श्रीदेवी चार्ट का पालन करने से न केवल लॉटरी के परिणामों का अनुमान लगाने में मदद मिलती है, बल्कि यह व्यक्तिगत जीवन में भी बदलाव और सुधार लाने का एक मार्गदर्शन प्रदान करता है। जिन लोगों को अपनी किस्मत पर विश्वास होता है, वे अक्सर श्रीदेवी चार्ट को एक सशक्त उपकरण के रूप में उपयोग करते हैं।
 
+1. [sridevi night chart open jodi result](https://github.com/sridevi-night-chart-open-jodi-result)
+2. [Satta Matka Result Kalyan Final Ank](https://github.com/Satta-Matka-Result-Kalyan-Final-Ank/)
+3. [satta matka king kalyan main bazar ank](https://github.com/satta-matka-king-kalyan-main-bazar-ank/)
+4. [rajdhani night chart result jodi-panel](https://github.com/rajdhani-night-chart-result-jodi-panel)
+5. [milan night chart result open jodi](https://github.com/milan-night-chart-result-open-jodi)
+6. [kalyan matka chart result open jodi](https://github.com/kalyan-matka-chart-result-open-jodi)
+7. [SATTA KING 2025 CHART RESULT](https://github.com/SATTA-KING-2025-CHART-RESULT)
+
 ---
 
 ### Sridevi Result | श्रीदेवी रिजल्ट
